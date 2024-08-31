@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cheezygt
-- 👀 I’m interested in ... uhhhhhhhhhhhhh modding games n shit?
+- 👀 I’m interested in ... uhhhhhhhhhhhhh modding games n stuff ig?
 - 🌱 I’m currently learning ... absolutely nothing
 - 💞️ I’m looking to collaborate on ... also nothing
 - 📫 How to reach me ... discord discord.gg/GdzMnCdjxH
